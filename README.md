@@ -316,7 +316,7 @@ Check my repositories below to explore my work.
 ### 📄 Resume
 
 [View / Download My
-Resume](https://drive.google.com/file/d/1cFa2epthVpvOhKppKOVCKs_7hGT-LRoM/view?usp=sharing)
+Resume](https://drive.google.com/file/d/1tUXzayoWr9SfvMDDUDayLGqnuQbeXO2X/view?usp=sharing)
 
 I'm open to:
 
